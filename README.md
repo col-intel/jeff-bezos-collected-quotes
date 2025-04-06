@@ -1,4 +1,4 @@
-# Collected Quotes of Jeff Bezos  
+# Collected Quotes from Jeff Bezos  
 
 ## Innovation  
 - **One of the huge mistakes people make is that they try to force an interest on themselves. You don't choose your passions. Your passions choose you.**  
